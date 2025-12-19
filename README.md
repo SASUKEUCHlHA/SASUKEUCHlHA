@@ -31,9 +31,7 @@ basically just add & ok
 
 .𖥔 ݁ ˖ ${\color{#1DF5F5}\text{BEST VIEWED IN PC MODE ╱}} {\color{#B4FCFC}\text{DESKTOP SITE this is where i uh store my archives/abandoned}}$
 
-${\color{#1DF5F5}\text{readmes}}$
-
-All are f2u or just take inspo , no need for creds but appreciated
+${\color{#1DF5F5}\text{readmes}}
 
 ![Alt text](https://ik.imagekit.io/22tifjcqh/Untitled2_20251031120956.png)
 
