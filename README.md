@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/4to2f9.png" width="521">
+<img src="https://files.catbox.moe/4to2f9.png" width="321">
 </p>
 
 <div align="center">
@@ -18,5 +18,5 @@
 
 
 <p align="center">
-<img src="https://files.catbox.moe/x6y862.png" width="421">
+<img src="https://files.catbox.moe/x6y862.png" width="221">
 </p>
