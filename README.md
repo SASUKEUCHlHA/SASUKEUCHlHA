@@ -6,7 +6,7 @@
 
 [prns.cc](https://pronouns.cc/@saiki.kusuo)
 [atabook](https://d0zing.atabook.org/)
-[about me](https://kusuosai.straw.page/)
+[about me](https://sasumatoes.straw.page/)
 <br>
 [art dump](https://artsdump.straw.page/)
 [rentry](https://rentry.co/y447ggzv)
