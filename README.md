@@ -9,7 +9,6 @@
 [about me](https://sasumatoes.straw.page/)
 <br>
 [art dump](https://artsdump.straw.page/)
-[rentry](https://rentry.co/y447ggzv)
 [strawpage](https://xneogim.straw.page)
 <br><br>
 [@Doxdxo](https://github.com/Doxdxo) is me.
